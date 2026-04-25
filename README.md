@@ -1,2 +1,0 @@
-# kpop-site
-kpop-site
